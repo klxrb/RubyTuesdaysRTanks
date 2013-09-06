@@ -1,6 +1,6 @@
 Date & Location
 ---------------
-- 3rd Sepecter 2013 @ Mindvalley HOA
+- 3rd September 2013 @ Mindvalley HOA
 
 Round 1
 -------
